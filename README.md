@@ -3,18 +3,27 @@
 <div align="center">
 
 
-" i'd⠀fly⠀far⠀into⠀space‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+" let the sky fall ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
-‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎　‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ as⠀long⠀as⠀i⠀am⠀with⠀[you](https://open.spotify.com/track/4YMvlMYV3hD8emKCprfb4N?si=9f68616a667643cc)*!* "
+‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎　‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ when it⠀[crumbles.](https://open.spotify.com/track/4YMvlMYV3hD8emKCprfb4N?si=9f68616a667643cc) "
+
+゛
 
 
 
-  ![pv](https://media.discordapp.net/attachments/1036862111260876872/1326660880514940958/173402203744382510_1_optimized_1_optimized.png?ex=67803cba&is=677eeb3a&hm=ace96a7be05fb1b255a4713d4f056a77cbc953018409575528c6480c48486924&=&format=webp&quality=lossless&width=350&height=350)
+  ![pv](https://media.discordapp.net/attachments/1036862111260876872/1336512654738456636/173402232031149673.png?ex=67a413e8&is=67a2c268&hm=961a776634cf5f0dd754a3785648d895c653f900ea737cafd548128c5abf7423&=&format=webp&quality=lossless
+)
 
-౨ৎ‎ ‎ ‎ ‎  ‎  ‎  ‎  ‎ ‎ dunyarzard **or** zephyrus‎ ‎ ‎ ‎ ‎ ‎ ︕
-  
-‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎　‎ ‎ ‎ ‎ 💜ㅤㅤㅤ﹒ㅤthey / itㅤㅤ𓏏𓏏ㅤㅤㅤ☆ ‎ 
+
+
+゛
+
+
+‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎　‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ " we will stand tall,
+
+
+face it all, at skyfall. "‎‎ ‎ ‎ ‎  ‎ ‎　‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎　‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 
 
 
