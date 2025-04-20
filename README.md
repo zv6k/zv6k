@@ -1,4 +1,6 @@
-![image](https://github.com/user-attachments/assets/e51352f0-0532-42cc-8d20-60ef5927b087)
+![image](https://github.com/user-attachments/assets/78dfc156-62dc-4a99-b526-42789147faa2)
+
+
 
 
 
@@ -18,17 +20,24 @@ c+h if i'm not with friends
 <p align="center">
 often offtab so w2i
 </p>
-<p align="center">　  　　　
-  　　　
-  　　　
+<p align="center">
+dividers by crkn1ght on tumblr :)
 
-![image](https://github.com/user-attachments/assets/375c94fb-b7bf-40fa-bdf8-c553765f1adf)
+  　　　　
+
+  　　　　
+
+  　　　　
+![image](https://github.com/user-attachments/assets/fe129dce-3274-4e21-a686-78b7e9715d50)
+
+
 
 <p align="center">
-    <img width="700" src="https://github.com/user-attachments/assets/38cb1aa5-9668-4381-82d2-95ef26e812c7">
+    <img width="700" src="https://github.com/user-attachments/assets/92e7fb54-004e-45d0-bf9e-883e52dcabd5">
 </p>
 
  　 　　
 
-![image](https://github.com/user-attachments/assets/566b27bd-de57-4896-91af-99524fbc8d07)
+![image](https://github.com/user-attachments/assets/1c936adc-dbe6-42be-bdd5-2b988c1e9028)
+
 
