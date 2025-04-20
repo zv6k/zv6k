@@ -6,7 +6,7 @@ https://github.com/user-attachments/assets/d18c00e0-0f28-4cb4-b040-381155302748
 
 　　　　　　　　　　　　
 <p align="center">
-caleb / yanqing
+caleb (or just call me whatever character i am in pt.)
 <p align="center">
 they/it/xe
 <p align="center">
