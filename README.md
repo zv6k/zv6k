@@ -19,6 +19,10 @@ they/it/xe/thxy
 <p align="center">
 c+h if i'm not with friends
 <p align="center">
+i am a minor (15)
+<p align="center">
+i am in fact taken, no serious flirting.
+<p align="center">
 often offtab so w2i
 </p>
 <p align="center">
