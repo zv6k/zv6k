@@ -19,7 +19,7 @@ they/it/xe/thxy
 <p align="center">
 c+h if i'm not with friends
 <p align="center">
-i am a minor (15)
+i am a minor (16) ok well technically on the 15th im 16 but its close enough
 <p align="center">
 i am in fact taken, no serious flirting.
 <p align="center">
